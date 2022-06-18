@@ -1,0 +1,3 @@
+- 👋 Hi, I’m @TGP1216
+- 👀 I’m interested in creating websites
+- 🌱 I’m currently studying college(B.sc computer science)
